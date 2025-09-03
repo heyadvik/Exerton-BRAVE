@@ -1,4 +1,4 @@
-# BRAVE Person-First Pre-Incorporation SAFE
+# BRAVE: Backing Rights For Anticipated Venture Equity
 
 ## Contract Document
 
