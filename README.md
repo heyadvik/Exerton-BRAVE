@@ -118,4 +118,4 @@ For questions about BRAVE:
 
 ---
 
-**Created by Exerton** | **BRAVE: Backing Rights For Anticipated Venture Equity**
+**Created by Exerton, Inc** | **BRAVE: Backing Rights For Anticipated Venture Equity**
